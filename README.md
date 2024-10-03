@@ -48,4 +48,4 @@ Let’s discuss how we can work together to build the team that will shape the f
 
 ## 
 
-[![Readme Quotes](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=light)](https://www.instagram.com/lise.reiner/))
+[![Readme Quotes](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=light)](https://www.instagram.com/lise.reiner/)
