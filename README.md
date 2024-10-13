@@ -42,8 +42,6 @@ Let’s discuss how we can work together to build the team that will shape the f
 
 **[LinkedIn Profile](https://www.linkedin.com/in/tech-headhunter/)**
 
-**[Instagram Profile](https://instagram.com/lise.reiner)**
-
 
 
 ## 
