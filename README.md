@@ -32,9 +32,6 @@
 
 - **Early-Stage Startup Consulting**: Providing advisory services for drone stealth startup on organizational design and recruitment strategy as they prepare to scale operations.
 
-## ⚡Other Interests:
-- [Tell me a Tale Youtube](https://www.youtube.com/@tellmeafolktale)
-
 ## 📫 Get in Touch:
 Let’s discuss how we can work together to build the team that will shape the future of mobility, aviation, robotics, and beyond.
 
